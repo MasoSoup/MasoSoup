@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on tbd
 - 📫 How to reach me Email: masonthompson.dev@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm a huge soccer fan, soccer is definitely one of the few things that take up most of my free time wether that is playing or watching. I am also a concert goer (this also takes up a big part of my free time) I love the music scene and the atmosphere that surrounds concerts and festivals every moment I can be listening to music I am! I also enjoy cooking as well as just eating food in general, I will try just about anything atleast once. 
+- ⚡ Fun fact: I'm a huge soccer fan, soccer is definitely one of the few things that take up most of my free time wether that is playing or watching. I am also a concert goer (this also takes up a big part of my free time) I love the music scene and the atmosphere that surrounds concerts and festivals every moment I can be listening to music I am! I also enjoy cooking as well as trying new foods, I will try just about anything atleast once. 
 
 <!---
 MasoSoup/MasoSoup is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
