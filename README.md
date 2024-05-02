@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MasoSoup
+- 👋 Hi, I’m @MasoSoup aka Mason
 - 👀 I’m interested in so many different things, I truly enjoy learning. The possibilties within tech are endless and that excites me, I have not been this excited to get out there and accomplish something in a very long time so coding, and development are filling a part of me that I did not know I was missing! 
 - 🌱 I’m currently learning HTML, CSS, and Javascript
 - 💞️ I’m looking to collaborate on tbd
